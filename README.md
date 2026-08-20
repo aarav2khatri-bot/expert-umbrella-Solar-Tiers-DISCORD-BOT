@@ -1,1 +1,0 @@
-# expert-umbrella-Solar-Tiers-DISCORD-BOT
